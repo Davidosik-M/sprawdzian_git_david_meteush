@@ -1,0 +1,1 @@
+# sprawdzian_git_david_meteush
